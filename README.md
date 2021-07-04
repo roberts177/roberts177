@@ -14,3 +14,6 @@
 <a href="https://the-tech-trend.com/growth-strategies/5-social-media-challenges-should-watch-in-2021/">social media challenges</a>
 
 <a href="https://the-tech-trend.com/security/15-best-google-chrome-security-extensions-you-should-use/">Best Chrome Security Extensions</a>
+
+<a href="https://the-tech-trend.com/reviews/what-is-amazon-erc-number-and-how-to-contact-amazon-hr-department/">Amazon ERC Number</a>	
+
